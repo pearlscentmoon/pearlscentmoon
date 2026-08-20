@@ -1,4 +1,3 @@
-you: who should i request in the pony town awards 'for pearlescentmoon.' me: me!!! you: ok!!
 
 <div align="center">
 
